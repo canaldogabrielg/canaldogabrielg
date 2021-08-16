@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @gabitoteves
+- 👋 Hi, I’m @canaldogabrielg
 
 - 📫 How to reach me -> Twitter DM - @canaldogabrielg
